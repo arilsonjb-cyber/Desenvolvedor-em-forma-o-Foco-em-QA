@@ -1,0 +1,1 @@
+# Desenvolvedor-em-forma-o-Foco-em-QA
